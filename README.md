@@ -1,5 +1,5 @@
 - Sige Wang / Molly
-- Sophomore at Boston College, math major
+- Boston College class of 2026, math major
 - From Hangzhou, China
 - UWCSEA-East *United we can
 
